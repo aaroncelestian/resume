@@ -1,6 +1,7 @@
  # Dr. Aaron J. Celestian, Ph.D.
 **Curator of Mineral Sciences • Research Leader • Innovation Strategist**
-📧 acelestian@nhm.org • 🔗 LinkedIn: /in/aaron-celestian • 📍 Los Angeles, CA
+
+aaron.celestian@gmail.com • www.linkedin.com/in/aaroncelestian • Los Angeles, CA
 
 ----------
 ## Executive Profile
